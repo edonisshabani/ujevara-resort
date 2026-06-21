@@ -1,0 +1,1 @@
+# ujevara-resort
